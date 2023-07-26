@@ -1,2 +1,2 @@
-# Friends-And-Company.github.io
+# Friends-And-Company.com
 Best Whole Seller Whole Around The World
